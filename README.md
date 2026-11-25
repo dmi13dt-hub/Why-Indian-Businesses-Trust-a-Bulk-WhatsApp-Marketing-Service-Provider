@@ -1,0 +1,2 @@
+# Why-Indian-Businesses-Trust-a-Bulk-WhatsApp-Marketing-Service-Provider
+Why are Indian businesses moving customer chats to WhatsApp? With WhatsApp marketing services from Sendgun, send personalised bulk campaigns in a few clicks, automate payment and booking alerts, and track which offers work best. Our team helps you plan, test and improve every campaign. Email: sales@sendgun.in | Call: 1800 8898 103 | www.sendgun.in
